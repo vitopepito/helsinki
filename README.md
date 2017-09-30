@@ -1,5 +1,9 @@
 # Helsinki
 
+See the tips on Google Maps!
+
+https://www.google.com/maps/placelists/list/1-4BKkv3y_WdjF1rOfDexVIRSoik
+
 ## Die verschiedenen Quartiere
 **Zentrum** (vom Hauptbahnhof bis Esplanadi):
 Stadtzentrum mit historischem Senats- und Marktplatz. Alle grossen internationalen Shops und Kaufhäuser.
